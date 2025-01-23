@@ -2,7 +2,7 @@
 - 👀 I’m interested in building and breaking wares of all manner, Hard and Soft
 - 🌱 I’m currently learning something new every day.
 - 💞️ I’m looking to collaborate on... Bring it! i will collaborate to help solve any issue! Reach out to me for help!
-- 📫 How to reach me, DM me here, on YT, X, and Twitch
+- 📫 How to reach me, DM me here @HalcyonToasted, on YT, X, and Twitch @HalcyonToast. 
 - 😄 Pronouns: I'm Him
 - ⚡ Fun fact: Fun Facts are fun, others are not.
 
